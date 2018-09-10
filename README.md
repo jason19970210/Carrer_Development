@@ -22,7 +22,7 @@
 + W18  (2019.01.07)
 
 ## Presentation on 2018.12.03 for the "Financial Plan"
--> Oral Presentation and Paper (print PPT with 9 slides in each page)
+-> Oral Presentation and Paper (print PPT with 9 slides in each page)  
 -> For the first 10 million
 
 
